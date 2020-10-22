@@ -1,4 +1,4 @@
-It is 3 am and you all you can find is a bottle of hot sauce and half a bag of shredded cheese.
+It is 3 am and you all you can find is a bottle of hot sauce and half a bag of shredded cheese. I assert this is a taco by the laws of English.
 
 # Ingredients 
 
